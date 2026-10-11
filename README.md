@@ -1,1 +1,1 @@
-Coding genius
+I like coding and building applications ! 
