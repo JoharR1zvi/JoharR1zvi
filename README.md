@@ -1,1 +1,1 @@
-I like coding and building applications ! 
+I like coding and building solutions ! 
